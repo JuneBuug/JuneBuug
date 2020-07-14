@@ -1,3 +1,5 @@
+[![Tech Blog Badge](http://img.shields.io/badge/-Tech%20blog-black?style=flat-square&logo=github&link=https://juneyr.dev)](https://juneyr.dev)
+
 ### Hi there 👋
 
 <!--

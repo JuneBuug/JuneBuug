@@ -10,6 +10,6 @@
 
 또다른 관심사는 **질 좋은 휴식**입니다. [사람과 함께 하며 충전하는 일](https://youtu.be/29VwSaIrX2c), 혼자서 마음을 다듬는 일 모두 좋아합니다. 이를 위해 꼼꼼히 계획을 세우고 대차게 성취합니다.
 
-게임과 [디자인](http://dribbble.com/junebuug)을 좋아합니다. 요즘에는 영상에도 빠져 있습니다.
+게임과 [디자인](http://dribbble.com/junebuug)을 좋아합니다.
 
 [블로그에](https://juneyr.dev) 꾸준히 글을 씁니다. 연락은 [메일](mailto:junee613@gmail.com)로 부탁드립니다.

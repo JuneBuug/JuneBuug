@@ -16,7 +16,7 @@
 - [log every single detail of life](https://juneyr.dev) to share and make world better 
 - you contact me anytime via [email](mailto:junee613@gmail.com)! 
  
-<hr/>  
+
 
   
 </div>

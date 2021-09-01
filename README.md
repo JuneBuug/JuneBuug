@@ -14,7 +14,7 @@
 - very into how to elevate productivity & getting healthy 💪
 - loves to share what I learned from the work & through study (... and many steps of failure!) 
 - [log every single detail of life](https://juneyr.dev) to share and make world better 
-- you contact me anytime via [email](mailto:junee613@gmail.com)! 
+- you can contact me anytime via [email](mailto:junee613@gmail.com)! 
  
 
 

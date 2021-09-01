@@ -1,7 +1,7 @@
 <div align="center">
   
 
-<img src="https://github.com/JuneBuug/JuneBuug/blob/master/giphy.gif?raw=true" width=300/>
+<img src="https://github.com/JuneBuug/JuneBuug/blob/master/giphy.gif?raw=true" width=200/>
   
 [![Tech Blog Badge](http://img.shields.io/badge/-Tech%20blog-black?style=flat-square&logo=github&link=https://juneyr.dev)](https://juneyr.dev)
 
